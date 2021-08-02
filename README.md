@@ -1,2 +1,2 @@
 # devlopersdashofficial
-this is the frist dite that i created
+this is the frist site that i created
